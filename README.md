@@ -1,1 +1,1 @@
-# -Microsoft-Future-Ready-Talent-Internship-FTR-
+# Microsoft-Future-Ready-Talent-Internship-FTR-
